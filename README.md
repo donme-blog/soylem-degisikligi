@@ -12,7 +12,12 @@ Ama bu "söylem" değişti bu yeni yakında. Hani o [saçlarım](https://donme-b
 Dönmeye "dönme" diye hitap ettim yine, [şuradaki](https://donme-blog.github.io/donmeye-yazi-hitap/) gibi mesela. Ama bu sefer "onuruna" dokundu dönmenin. Başka bir söylemle geldi/girdi konuya – "dönme ne demek" ve ilk itiraz "ben dönme değilim" der. Daha önce hiç olmayan, yeni bir şey. Dönme mahzun olur genelde bu durumlarda ama bu sefer hiç öyle değil. "Hırsız" da diyorum dönmeye. Aynı konuşmada. Hırsızlıkla derdi yok, ama dönmelikle var. Pırıl pırıl, yeni bi söylem. Hakkaten de dokunaklı. İnsanlık onuruna hitabeden bir şey. Böyle söyleyince "Saçlarım nerede, kime verdin?"ler falan da araya gidiyor – dönmenin feryat figanı var ortada – konu onda.
 
 
- Not: Analığımla; Babam’ın ameliyatından bu yana, telefonda konuşmaya dahi tahammül edemiyorum. Analığımla aynı odada olmayı da bundan çok daha önce bıraktım – yazacağım bunları ayrıca.
+<p align="right" style="margin-left: 15%;">
+<span style="font-style: italic !important;">
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Not: Analığımla; Babam’ın ameliyatından bu yana, telefonda konuşmaya dahi tahammül edemiyorum. Analığımla aynı odada olmayı da bundan çok daha önce bıraktım – yazacağım bunları ayrıca.
+</span>
+</p>
+
 
 ## Dönemeler konseyi/korosu
 
